@@ -23,7 +23,8 @@
 <p align="center"> I will keep you company ♡ ( As long as you give me a head's up ) ♡ ー .ᐟ ꒱
 <p align="center"> ꒰ MDNI AT ALL .ᐟ I only play in the 18+ servers , 18+ Hispanic one if I DO want to be more alone . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ I block freely without ANY type of explanation if you cross my boundaries . . . ( I WILL call you out if needed ) ꒱
-<p align="center"> ꒰ Every relationship I have here is platonic ( DO NOT FLIRT WITH ME NON RP WISE AT ALL , I WILL HIDE YOU & I AM NOT INTERESTED RESPECT IT ) ,
+<p align="center"> ꒰ Every relationship I have here is platonic
+<p align="center"> ( DO NOT FLIRT WITH ME NON RP WISE AT ALL , I WILL HIDE YOU & I AM NOT INTERESTED . . . RESPECT IT ) ,
 <p align="center"> English is not my first language so please do not mind my mistakes or point them out . . . ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ You're always free to go off with other friend's or get off etc. ( I won't take offense etc. ) ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ PLEASE int if you relate / love etc. the same character's / media as I do ,
