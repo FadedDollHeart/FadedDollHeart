@@ -5,10 +5,10 @@
 <p align="center">
 <img src="https://files.catbox.moe/hb3rec.webp" alt="Description of your image">
 </p>
+<p align="center"> ꒰ Please do NOT assume that I'm in somesort of relationship
+<p align="center"> Whenever I'm matching ships with my friends , thank you ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Ask to RP beforehand , PLEASE . . . I do not RP easily but I am open to rping as long as we talk about it beforehand
 <p align="center"> ( Ship rps are OKAY , JUST please do just NOT get attached with me. I do NOT take them seriously ooc wise ) ♡ ー .ᐟ ♡ ꒱
-<p align="center"> ꒰ Also please do NOT assume that I'm in somesort of relationship
-<p align="center"> Whenever I'm matching ships with my friends , thank you ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ Do NOT copy my skins , INSPO is perfectly okay as LONG as you let me know . . . 
 <p align="center"> I truly apologize if I never catch your crown but they're all truly appreciated . . . I also LOVE crowning back ♡ ー .ᐟ ♡ ꒱
 <p align="center"> ꒰ INT , C + H is highly encouraged anytime or whenever I'm not afk .ᐟ You are free to hide behind me if needed etc.
